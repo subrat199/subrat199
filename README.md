@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **subratt01998@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18Pbe_wyjgv58f_eegClDllB02VuUe7GL/view?usp=drive_link](https://drive.google.com/file/d/18Pbe_wyjgv58f_eegClDllB02VuUe7GL/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
